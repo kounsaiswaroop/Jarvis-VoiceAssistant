@@ -62,5 +62,5 @@ Jarvis is an AI-powered, voice-activated virtual assistant capable of performing
 
 ## Support
 
-For support, email saiswaroopghadai@gmail.com or follow on Instagram.
+For support, email saiswaroopghadai@gmail.com or follow on X.
 
